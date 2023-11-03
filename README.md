@@ -23,7 +23,7 @@ Changes to this Privacy Policy
 The SHAYPRAM DEVELOPERS Team reserves the right to update or modify this Privacy Policy at any time. Any revisions will take effect immediately upon the publication of the updated Privacy Policy within the App. We encourage you to periodically review this Privacy Policy for any changes or updates.
 
 Contact Us
-If you have questions or concerns about this Privacy Policy or the practices of our App, please feel free to reach out to us at support@cambridgeunipress.com.
+If you have questions or concerns about this Privacy Policy or the practices of our App, please feel free to reach out to us at shaypramdevelopers@gmail.com.
 
 The Cambridge English Dictionary mobile application is not affiliated with or endorsed by Cambridge University or its official representatives. This app is an independent project developed by the SHAYPRAM DEVELOPERS to provide language learning resources to its users.
 
